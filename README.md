@@ -1,3 +1,3 @@
 ## Hello! My name is Sebastian Cox, I am a student at Florida State University studying Computer Engineering.
-## My experience in coding revolves around C/C++, utilizing embedded systems and object-oriented programming.
-## My interests are in computer hardware, I love building PCs and keeping up with the new tech.
+## I love people and working together and anything that involves socializing!!!!!!!!!!!!!!
+## My interests are in computer hardware on any level
